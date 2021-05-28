@@ -6,4 +6,7 @@
 
 mi portfolio aquí :point_down:
 <br/>
+WORK IN PROGRESS
+<br/>
 https://nohaynicksdisponibles.github.io.
+
